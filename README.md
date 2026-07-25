@@ -1,6 +1,6 @@
 <div id="header" align="left">
   
-![](https://komarev.com/ghpvc/?username=boybabe&color=000000&label=𝓫uggies⠀.⠀&style=plastic&base=2640)
+![](https://komarev.com/ghpvc/?username=boybabe&color=5B359B&label=𝓿oid⠀followers⠀.⠀&style=plastic&base=2640)
 
 </p>
 
@@ -37,7 +37,7 @@
     <b>ㅤㅤㅤㅤㅤㅤ𝓭ni.ㅤㅤㅤׅㅤ</b>
   </summary>
 
- ⠀⠀࿔𝓫asic dni crit ﹔ f*lly apologizers. 
+ ⠀⠀࿔𝓫asic dni crit ﹔ 𝓷oli fictionkins. 
  
  ⠀⠀𝔂umesㅤ۪ㅤexesㅤׅㅤdramatic⁄⁄sensitive pplۦ
 
@@ -53,7 +53,7 @@
 
  ⠀⠀𝓲 think of myself to be highly socialㅤׅㅤ i love meeting new people ﹗ㅤ۪ㅤint freely. 
 
-  ⠀ 𝓲 sleep aaaaaaaalll day long.ㅤ۪ㅤdon't expect me to be active at early hours.
+ ⠀⠀𝓲 sleep aaaaaaaalll day long.ㅤ۪ㅤdon't expect me to be active at early hours.
 
 
 </details>
