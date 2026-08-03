@@ -1,6 +1,6 @@
 <div id="header" align="left">
   
-![](https://komarev.com/ghpvc/?username=boybabe&color=5B359B&label=𝓿oid⠀followers⠀.⠀&style=plastic&base=2640)
+![](https://komarev.com/ghpvc/?username=boybabe&color=000000&label=ⓥ𝗼𝓲𝕕⠀𝕗𝗼𝗹𝔩𝗼𝔀𝗲𝗿𝓼⠀.⠀&style=plastic&base=2640)
 
 </p>
 
